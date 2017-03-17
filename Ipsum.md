@@ -11,7 +11,7 @@ nihil. Sit **cum virtute**, ore ore ruit, Samos blando habitabile.
 > Unco interdictae segetes vulnera: levavit **sola sustulit** Tartara; neque
 > telis, in velit pulsoque, supersunt iubar. Bracchia cernimus crura Parnaside
 > mentem rapienda nostris volentem dicere perdiderint, arma! Sub mactatos
-> foedera velox Phrygia Lyncus vultus fessa cui Argolico cadentum invitusque
+> foedera velox Lyncus vultus fessa cui Argolico cadentum invitusque
 > Argus Hesperium. [Iste](http://sicadsueta.net/inerti-postquam) pumice est
 > nostris utinam celebrare digiti exiguam, erat non fatis hostibus laterum sim
 > fama, amor quia.
